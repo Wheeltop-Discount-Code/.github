@@ -63,8 +63,8 @@ Some cyclists share codes in online communities. To find them:
 Before making your next cycling upgrade, always search for a **Wheeltop discount code**. Bookmark this page and check back regularly for updated promotions.  
 
 ➡ Find the latest deals here:  
-- [Wheeltop US Discounts](https://www.dealsvalid.com/brands/wheeltop-us?utm_source=github)  
-- [Wheeltop International Discounts](https://www.dealsvalid.com/brands/wheeltop?utm_source=github)  
+- [Wheeltop US Coupon Codes](https://www.dealsvalid.com/brands/wheeltop-us?utm_source=github)  
+- [Wheeltop International Coupon Codes](https://www.dealsvalid.com/brands/wheeltop?utm_source=github)  
 
 ---
 
