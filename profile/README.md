@@ -12,7 +12,7 @@ Looking for the latest **Wheeltop discount codes**? 🚴‍♂️ Whether you’
 
 ---
 
-## Latest Wheeltop Discount Codes  
+  ## Example Wheeltop Promo Codes & Offers
 Here are some examples of popular promotions that have been available in the past:  
 
 - **€30 Off Wheeltop Shifters** – Ideal for riders upgrading their bike setup.  
@@ -23,7 +23,7 @@ Here are some examples of popular promotions that have been available in the pas
 
 ---
 
-## How to Use a Wheeltop Discount Code  
+## How to Use a Wheeltop Coupon Code  
 Applying a coupon code is quick and easy:  
 
 1. Copy the promo code (if available).  
